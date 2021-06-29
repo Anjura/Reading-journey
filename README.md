@@ -31,3 +31,12 @@ iv.It still is his birthday and it's been 13 hours since he left his home.
 v.The bus stopped at a rest area on a highway for a twenty-minute break. They were about an hour far from teh Takamatsu station.
 vi.The mysterious girl sits beside him and tries to make a conversation with Kafka;she states that Kafka looks like her younger brother whom she hasn't seen in years;she sat beside him on the bus too for the rest of the journey.
 vii.She slept and Kafka was doing his paperwork for some time and eventually, he drifted to sleep too.
+
+Day-4 - 27-06-2021
+i.In chapter 4, the interview of a local doctor of the town who was contacted to treat the kids that were conscious on the hill after the homeroom teacher came down the hill to get help for the kids.
+ii.The doctor was called because he used to be their school doctor and informed him about all that happened with the kids.
+iii.The doctor assumed that the kids ate poisonous mushrooms because it happens most of the time in this small town.He went up the hill with some people with him but most of the young men were away at war. He was flustered at the scene befor him. The kids were unconscious and there were 3-4 kids who partially regained consciousness.
+iv.He started checking the other kids but there was nothing out of normal except they weren't responding to anything. It might arise due to sunstroke but sixteen children at the same time was impossible but then rose the question that it might've been a poison gas by the Americans which also justified that there were planes moving around due to the war. They assumed that elders weren't affected because it wasn't strong enough to affect them.
+v.The kids started to regain conscious one by one which was a big sigh of relief for the elders but the children remember nothing about the whole being unconscious thing. There was one pale boy who hadn't woken up an dwas taken to the university hospital and then to the military hospital an dwas never seen again.
+vi.The children were fine and they went on with their lives but it was difficult for the homeroom teacher. There were tests done but everything was good and normal.
+vii.This never made the newspaper because the authorities decided that it would cause chaos and so, the mention of it was banned. They even warned them that they are not to talk about this event. It was a strange and unpleasant event which still is like a weight pressing down on the doctor. 
